@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @jqyinny
-- 👀 I quit my cushy job at Google because I wanted to try something new. It's a whole world of entrepenuership calling to me right now and I'm looking to jump in. :)
